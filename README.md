@@ -1,4 +1,4 @@
-# Hi there 👋, My name is Alejandro Felipe Parado Inca
+# Hi there 👋, My name is Ygnacio Felipe Parado Huallanca
 
 Soy una persona bastante jovial
 
